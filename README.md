@@ -1,0 +1,2 @@
+Healthcare Compliance Solutions Ltd (HCSL) is a New Zealand Nurse & Auditor designed aged care and retirement Village management software, to guide them to meet compliance, evidence best-practice, participate in benchmarking, document operational and care planning needs efficiently, easily and in line with best practice.
+Gillian Robinson-Gibb is the Founder, Managing Director of HCSL having established HCSL in 2003. 
